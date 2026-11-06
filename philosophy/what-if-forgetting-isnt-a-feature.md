@@ -1,4 +1,6 @@
 
+# What if forgetting isn't a feature?
+
 While discussing about different layers of realities, dreams, etc. with a friend of mine yesterday, trying to disprove a really old theory about conventional reality being closer to the absolute reality as we can invalidate the conventional dream after waking up in conventional reality, but not vice versa... I was trying to prove that this theory isn't right by pointing out some obvious flaws, that's when I stumbled upon a new idea, here's the raw transcript of what I wrote and thought the other day (more like, thinking out loud):
 
 """
